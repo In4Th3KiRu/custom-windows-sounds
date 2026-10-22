@@ -1,1 +1,1 @@
-All sounds are made by myself by using GrageBand on Ipad
+All sounds are made by myself by using GarageBand on Ipad
